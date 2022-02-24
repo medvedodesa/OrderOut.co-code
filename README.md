@@ -1,1 +1,4 @@
 
+Detail
+REDDIT
+PIKABU
